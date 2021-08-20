@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @veryveraLOL
 - 👀 I’m interested in cooking and art.
-- 🌱 I’m currently learning GitHub, aome marketing skills, video editting, social media management.
+- 🌱 I’m currently learning GitHub, some marketing skills, video editting, social media management,etc.
 - 💞️ I’m looking to collaborate on anything, maybe.
 - 📫 How to reach me ->> E-mail: vira6529@gmail.com  or DM my Instagram ( https://www.instagram.com/vera_wishes/
 
